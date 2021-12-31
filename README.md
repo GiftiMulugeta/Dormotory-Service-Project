@@ -1,2 +1,11 @@
 # Dormotory-Service-Project
-Our project isjkdfjdfbdfsdjfbfjkjkbdjvdvjdjv  djbjdjkdjngjdnjgdngndjgndjkgdjg hgjkgjbgfbgjdhbgdjbgdjbgjd jbgjdbgjbgdjfbgdjbgdjbdfbgdfjbgj jjbjfbgjbgbjjfgjdgbd gbjdbgdkdk ehfejkfhweifhwefwjhfwejkfhwehfjehfjwfjkbj
+Group members name
+Christina Solomon UGR//12
+Dawit-Yityayal  UGR/6377/12
+Genzeb Alemu UGR/9822/12
+Gifti Mulugeta UGR/6377/12
+Ruhama UGR//12
+
+
+Our project is about Dormiory project it deals w
+
